@@ -3,7 +3,7 @@
 Adult AI landing page with traffic distribution.
 
 **Live:** https://twogaytop-tech.github.io/ai-01/
-**Offer:** https://clicknlook.site/a/loL9Hz34EcqOmX
+**Offer:** https://top-deal.me/a/Nmj6sMWEOFjB2g
 
 ## Traffic Sources
 | Source | Share | Pages |
